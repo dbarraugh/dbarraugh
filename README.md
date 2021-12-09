@@ -1,2 +1,2 @@
 Hello.   I'm Duane Barraugh
-![IMG_1838](https://user-images.githubusercontent.com/94098309/145449590-a0b35974-f8f0-4a30-9279-b49abc5e7c30.jpeg)
+![9D8D74A7-D328-4229-B87F-33238C01B96E_1_105_c](https://user-images.githubusercontent.com/94098309/145450289-fd492896-c5c5-4cc9-91cd-4dcccc080429.jpeg)
